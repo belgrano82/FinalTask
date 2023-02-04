@@ -6,4 +6,6 @@
 
 Сейчас только фото добавлю...
 
-![](C:\Users\belgrano\Desktop\FinalTask\photo1675044892.jpeg)
+И спасибо за курс!
+
+![](C:\Users\belgrano\Desktop\FinalTask\photo1675044892.jpg)
