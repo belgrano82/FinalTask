@@ -8,4 +8,4 @@
 
 И спасибо за курс!
 
-![](C:\Users\belgrano\Desktop\FinalTask\photo1675044892.jpg)
+![Илон Маск](https://upload.wikimedia.org/wikipedia/commons/3/34/Elon_Musk_Royal_Society_%28crop2%29.jpg)
